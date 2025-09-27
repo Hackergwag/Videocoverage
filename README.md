@@ -21,7 +21,7 @@ The project comprises a video coverage of 2 diffrent events.
 
 <p align="center">
 Gopro Coverage In An Event: <br/>
-(https://www.mediafire.com/file/z4n1sv2lgndsa9o/HVQA8861.mp4/file)
+(https://streamable.com/qqxu83)
 <br />
 <br />
 Advert Coverage:  <br/>
@@ -29,7 +29,7 @@ Advert Coverage:  <br/>
 <br />
 <br />
  Driving Skill:  <br/>
-(https://www.mediafire.com/file/fz1hpx7oql7yki1/LVOU2300.mp4/file)
+(https://streamable.com/omli9k)
 </p>
 
 <!--
