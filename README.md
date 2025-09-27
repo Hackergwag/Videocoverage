@@ -25,7 +25,7 @@ Gopro Coverage In An Event: <br/>
 <br />
 <br />
 Advert Coverage:  <br/>
-(https://www.canva.com/design/DAGVJjuHd9k/rTVWQVoAE4_TtA-AcaXKNg/edit?utm_content=DAGVJjuHd9k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+(https://www.canva.com/design/DAGVJjuHd9k/VibODd3dq8-_86hFo7_GUw/view?utm_content=DAGVJjuHd9k&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h3f09944e81)
 <br />
 <br />
  Driving Skill:  <br/>
